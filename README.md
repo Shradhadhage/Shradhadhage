@@ -10,7 +10,7 @@
 
 🧠 **Preparing for GATE 2026/2027 (CSE)**  
 🎯 Target: **IIT Bombay – M.Tech in Computer Science**  
-🔍 Category: OBC | Committed to consistent practice, deep conceptual understanding, and mock test mastery!
+
 
 ---
 
