@@ -9,7 +9,7 @@
 ## 🎯 My Current Goal
 
 🧠 **Preparing for GATE 2026/2027 (CSE)**  
-🎯 Target: **IIT Bombay – M.Tech in Computer Science**  
+🎯 Target: **IIT Bombay – M.Tech in Computer Science Engineering**  
 
 
 ---
